@@ -1,0 +1,2 @@
+# samidiriba.com
+yes
